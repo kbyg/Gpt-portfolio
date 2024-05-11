@@ -1,1 +1,1 @@
- This is is my graphics design works showcasing website
+My name is Kibruyisfa Getahun, Computer Engineering senior and Graphic Design Frelancer.
